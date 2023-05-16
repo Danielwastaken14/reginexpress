@@ -10,6 +10,7 @@
 - ⚡ Fun fact **I am pretty smart**
 
 <h3 align="left">Connect with me:</h3>
+<p>Danielkonieczny89@gmail.com</p>
 <p align="left">
 </p>
 
