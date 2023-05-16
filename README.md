@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Danielkonieczny89@gmail.com**
 
-- ⚡ Fun fact **I am pretty smart**
+- ⚡ Fun fact **I love science-fiction**
 
 
 
